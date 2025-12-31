@@ -5,4 +5,4 @@ Pls follow my main ,,,, @moonlitflowerrs
 
 i have a very wide dni so if ur on this list pls dont int. 
 
-[Very Serious DNI](https://rentry.co/shrimposdnidontplay)
+[Very Serious DNI](https://rentry.co/shrimposdnidontplay)  | [Atabook . Sign it. pls..](https://theloadeddiaper.atabook.org/)
